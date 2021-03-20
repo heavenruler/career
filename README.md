@@ -1,0 +1,2 @@
+# career
+memo for everythin.
